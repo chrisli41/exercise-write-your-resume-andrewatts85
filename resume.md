@@ -18,8 +18,6 @@ Capable of working under stress.  I confidently face the challenges of work on a
  
 ## Employment History  
 
----
-
 >**Stockton Hyundai:** 2979 Auto Center Circle, Stockton, Ca 95212  
 >**Phone:** 209 662 6400  
 
