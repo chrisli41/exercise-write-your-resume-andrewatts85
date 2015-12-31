@@ -50,14 +50,10 @@ Presently employed.
 **Reason for leaving:**  
 Desired a full time position.
 
----
-
 >**Period Of Unemployment**  
 
 August 2010 to February 2012  
 From Spring 2012 to Spring 2015 Pursued a degree in Diesel Equipment Technology  
-
----
 
 >**Sodexo Metro Park Laundry:** 7679 S Longe St, Stockton, Ca 95206  
 >**Phone:** 209 982 4955  
